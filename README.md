@@ -15,4 +15,4 @@
 
 photo credits: [unsplash](https://unsplash.com/)
 
-by Eddie Kao (eddie@5xcampus.com)
+this practice is certainly originated form  Eddie Kao (eddie@5xcampus.com), only used in private purposes without any benefitial interest. 
